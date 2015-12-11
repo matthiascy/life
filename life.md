@@ -7,11 +7,15 @@ Chen's life
 - 2001-2005 Primary school - 煤一公司子弟小学
 - 2005-2006 Primary school - 靖煤公司第一小学
 - 2007-2009 Junior middle school - 白银九中(靖煤一中)
+- ~2008- La permière fois d'entendre une chanson française - [Je m'appelle Hélène.](http://www.xiami.com/song/3342118?spm=0.0.0.0.eph7LM)
 - ~2008 Touched my first computer
 - ~2009- Play first video game - Call Of Duty
-- 2010-2012 Senior middle school - 白银九中(靖煤一中)
-- 2012-~ University - Hangzhou Dianzi University
-- 2012-~ Live alone, away from home 2000 kilometers
+- 06/2011-06/2012- Preparing for the University Entrance Examination, that's really hard time
+- 2010-06/2012 Senior middle school - 白银九中(靖煤一中)
+- ~2011- Trying to crack a game, Mount&Blade
+- 06/2012-09/2012 - Short but meaningful 3 months
+- 09/2012-~ University - Hangzhou Dianzi University
+- 09/2012-~ Live alone, away from home 2000 kilometers
 - 09/2012 Entrance ceremony
 - 09/2012-06/2013 Learn C/C++ programming language
 - ~2013 The first drink
